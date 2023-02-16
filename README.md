@@ -143,3 +143,6 @@ I tried to show the scene and feeling of myself watching TV in the morning, cons
 > "...bring him out, let's take a look..."
 > 
 > slipping words in my pockets like a non-smudge lipstick that smears with the first KISS, and my SAMUEL Johnson in a frock coat.
+> 
+> [turn off TV]
+
