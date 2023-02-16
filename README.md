@@ -116,24 +116,30 @@ I tried to show the scene and feeling of myself watching TV in the morning, cons
 
 >
 > "Tomorrow's forecast calls for mostly sunny skies with a..."
+> 
 > A-BOMB is how it begins with a big bang on page one.
+> 
 > 
 > (changing channel)
 > 
 > "...council meeting is scheduled for next..."
+> 
 > THE house stinks, and but those damned mice have SKEDADDLED.
 > 
 >  (changing channel)
 > 
 > "...a high of 60 degrees..."
+> 
 > like a STRAY Cheeto found in your pocket the day after you finish the bag.
 >  
 >  (changing channel)
 >  
 > "Stay tuned to find..."
+> 
 > but those DAMNED mice have skedaddled, or DON'T as the case may be.
 >  
 >  (changing channel)
 >  
 > "...bring him out, let's take a look..."
+> 
 > slipping words in my pockets like a non-smudge lipstick that smears with the first KISS, and my SAMUEL Johnson in a frock coat.
